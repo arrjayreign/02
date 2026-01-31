@@ -20,6 +20,7 @@
 
 ![Untitled435_20260129035715](https://github.com/user-attachments/assets/6d744dd8-6019-4d9b-bab8-a4257e0b76c1)
 
+<img width="2448" height="1500" alt="image" src="https://github.com/user-attachments/assets/3229017a-ec43-4fc3-9cc3-712ffe5e62df" />
 
 ***
 
